@@ -1,0 +1,1 @@
+Go look up GPL... that applies here.
